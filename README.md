@@ -1,1 +1,1 @@
-Streamline your operations with a powerful, intuitive platform designed for modern fitness centers. From automated membership billing and class scheduling to real-time performance tracking, we provide the tools you need to spend less time on paperwork and more time on the training floor.
+Streamline your operations with a powerful, intuitive platform designed for modern fitness centers. From automated membership billing and class scheduling to real-time performance tracking, we provide the tools you need to spend less time on paperwork and more time on the training floor .
